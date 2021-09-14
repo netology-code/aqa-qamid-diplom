@@ -1,0 +1,1 @@
+# aqa-qamid-diplom
